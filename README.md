@@ -6,3 +6,13 @@ Presentaciones para la Asignatura Composición III en Instituto Profesional Arco
 002 [https://felixpinok.github.io/comiiie/002/](https://felixpinok.github.io/comiiie/002/)
 
 003 [https://felixpinok.github.io/comiiie/003/](https://felixpinok.github.io/comiiie/003/)
+
+004 [https://felixpinok.github.io/comiiie/004/](https://felixpinok.github.io/comiiie/004/)
+
+005 [https://felixpinok.github.io/comiiie/005/](https://felixpinok.github.io/comiiie/005/)
+
+006 [https://felixpinok.github.io/comiiie/006/](https://felixpinok.github.io/comiiie/006/)
+
+007 [https://felixpinok.github.io/comiiie/007/](https://felixpinok.github.io/comiiie/007/)
+
+008 [https://felixpinok.github.io/comiiie/008/](https://felixpinok.github.io/comiiie/008/)
